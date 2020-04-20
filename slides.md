@@ -1,1 +1,1 @@
-Super titre de qualite qui tape bien
+Super titre de qualite
