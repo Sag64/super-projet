@@ -1,1 +1,1 @@
-Super titre trop cool de la mort
+Super titre de qualite
